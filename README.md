@@ -1,5 +1,7 @@
 # read.pls
 
+![image alt](https://github.com/7daysgone/read.pls/blob/8e2ac8c07f8792754a8a8dd9d92beb4bb28bfa60/IMG_0370.jpeg)
+
 koku/koko.
 
 demonslayer,deathnote,jjk cosplayer.
