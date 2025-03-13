@@ -1,6 +1,6 @@
 # read.pls
 
-![image alt]
+![image alt] (https://github.com/7daysgone/read.pls/blob/1fd9fcf890bf96a0e942636b1d7d318c62cb5c41/IMG_0370.jpeg
 
 koku/koko.
 
