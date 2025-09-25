@@ -1,10 +1,11 @@
-do not copy+heavy inspire any of my avatars, i will permanently block and report.
-if i dont respond, whisper to interact. i do not like cuddles unless you are a close friend of mine.
+do not copy+inspire any of my avatars, i report these people and copiers of my friends as well. so please have some respect and have your own ideas. my avatars are not a example.
+
+you can freely interact me, im only not talkative if you arent. if i dont respond, whisper to interact. i dont like c+h unless close friend. you can ask me at least but without permission is rude so please ask.
 
 
-i block ragebaiters/trolls. i don't like people hiding behind me either so please dont interact that way but iwec. i most of the time may be in a bad mood.
+i block people who hide behind me instead of interacting normally. unless i am offtab
 
 
-i mostly make demonslayer/kny cosplays, anyone from kny fandom can interact.
+i mostly make demonslayer/kny cosplays, mostly upper moon one.
 
 thank you for reading this.
